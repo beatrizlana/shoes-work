@@ -1,1 +1,1 @@
-# College work for a shoes stores in Ireland
+# College work for a shoes store in Ireland
